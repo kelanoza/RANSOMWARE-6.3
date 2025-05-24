@@ -1,1 +1,0 @@
-# RANSOMWARE-6.3
